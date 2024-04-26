@@ -27,4 +27,6 @@
 
 ᴳʳᵃᵖʰⁱᶜˢ ⁿ ᵈⁱᵛⁱᵈᵉʳ ᵇʸ [ᵐᵉᵗᵃˡᵇᵒᵈʸ](https://www.tumblr.com/metalbody) ᵃⁿᵈ ˢᵐᵃˡˡ ᵏᵃᶠᵏᵃ ᵇʸ [ʰᵃᵖᵖʸˢʳᵖʰ](https://www.tumblr.com/happysrph) ᵖⁱˣᵉˡˢ ᵇʸ [ˡᵉᵐᵘʳⁱᶻ](https://www.tumblr.com/lemuriz) ᵃⁿᵈ ᶜʰⁱᵇⁱ ᵏᵃᶠᵏᵃ'ˢ ᵇʸ [ᵗᵉʳⁿᵉᵘˡˢ](https://www.tumblr.com/terneuls)
 
+ᴹᵃᵈᵉ ʷⁱᵗʰ ᵗʰᵉ ʰᵉˡᵖ ᵒᶠ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)
+ᶠᵒʳ ᵐʸ ᶠᵃᵗʰᵉʳ୨♡୧
 
